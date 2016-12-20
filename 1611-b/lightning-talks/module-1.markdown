@@ -10,7 +10,11 @@ Outline:
 
 Andrew Wooten:
 
-Outline:
+Outline 
+Ginger: Lower Cholesterol levels, improve brain function(reaction time and working memory), 
+	antibiotic, anti fungal, aids digestion
+
+Turmeric: Generally found in curry, but also available solo.  anticoagulant, improved brain function,(decreased alzheimers risk), antidepression(proven as effective as prozac
 
 
 
